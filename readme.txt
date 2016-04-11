@@ -25,3 +25,5 @@ kirun
 uhuyyyyyyyyyyyy, susah euy
 
 tidung
+
+gampangan dari sini...
