@@ -27,3 +27,5 @@ uhuyyyyyyyyyyyy, susah euy
 tidung
 
 gampangan dari sini...
+
+coba dari sini yuhuuuu
