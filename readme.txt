@@ -19,4 +19,9 @@ monday morning rain is falling~~~~~
 
 ngok ngok ngok ngok
 
+
 kirun
+
+uhuyyyyyyyyyyyy, susah euy
+
+tidung
